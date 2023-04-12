@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @prateekbhagdev
 - 👀 I’m interested in Product Management, User Experience & Technology
-- 🌱 I’m currently learning Advance Management
+- 🌱 I’m currently learning Advance Product Management
 - 💞️ I’m looking to collaborate on Interesting Initiatives
 - 📫 You can reach me prateekbhagdev@gmail.com
 
